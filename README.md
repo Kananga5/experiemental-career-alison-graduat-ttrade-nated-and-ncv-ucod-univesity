@@ -12027,7 +12027,656 @@ On Tue, May 13, 2025 at 10:11 AM tshingombe fiston <tshingombefiston@gmail.com
                                                                     Mastering Advanced Scrum
                                                                     Digital Certificate
                                                                     Digital Certificate
-                                                                    ZAR310.00
+                                                                    ZAR310.00TSHINGOMBEKB TSHITADI <tshingombekb@gmail.com>
+Re: Complete your Alison purchase with these Bank Transfer details, tshingombe.
+tshingombe fiston <tshingombefiston@gmail.com>	Tue, Apr 8, 2025 at 10:35 AM
+To: tshingombe fiston <tshingombefiston@gmail.com>, TSHINGOMBEKB TSHITADI <TSHINGOMBEKB@gmail.com>
+Loading
+No internet? No problem! Download any course on the Alison App and learn on the go. 📲
+Get App
+Free Online Courses, Classes and Tutorials
+Explore Courses
+Claim Your Certificates
+Discover Careers
+More
+LMS
+Continue Learning Tshingombe Fiston
+learning-stats
+Learning Stats in April
+April 2025
+Mon
+Tue
+Wed
+Thu
+Fri
+Sat
+Sun
+31
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+26
+27
+28
+29
+30
+1
+2
+3
+4
+Days you learnt
+Best learning day
+You learned 3 days this month
+2 days more than last month
+total-time-icon
+
+4 Hrs
+
+1 mins
+
+Total Time Learning
+total-time-icon
+
+7th Apr
+
+|
+
+1 Hr 53 mins
+
+Best Learning Day
+Average number of hours you learn on days of the week
+total-time-icon
+
+Mondays
+are your best day
+total-time-icon
+
+Tuesday
+you study the least
+Want to make your learning more regular?
+Goals and Achievements in April
+You earned 1 medals
+more-less-sign1 medals less than last month
+0
+gold
+
+Learn 3 days in a week to earn gold
+0
+silver
+
+Learn 2 days in a week to earn silver
+1
+bronze
+
+Learn 1 day in a week to earn bronze
+
+3
+
+Courses you completed
+total-time-icon
+
+0
+
+Certificates you claimed
+total-time-icon
+
+2
+
+Courses in progress
+total-time-icon
+
+96%
+
+Average course assessment score
+total-time-icon
+Keep learning and add more achievements!
+goals-achievements-icon
+Your Learning in April
+Courses in progress
+
+    course image
+
+    Advanced Diploma in Basics of Electrical Technology and Circuit Analysis
+    Enrolled on 8th April
+    12%
+
+course image
+
+Diploma in Electrical Studies
+Enrolled on 26th July
+97%
+You completed
+
+    course image
+
+    Electrical Measuring Instrumentation
+
+    Completed on: 7 April 2025
+
+View Sample Certificate
+
+View Sample Certificate
+
+View Sample Certificate
+Certificates You Claimed
+exclamation-mark
+
+You have completed your course but didn't claim your certificate!
+
+Claim your certificate today.
+Want to do even better next month?
+
+Keep learning to earn more achievements and improve your stats!
+FREE ONLINE COURSE CATEGORIES
+
+    IT
+    Health
+    Language
+    Business
+    Management
+    Personal Development
+    Sales & Marketing
+    Engineering & Construction
+    Teaching & Academics
+    English
+
+LEARN ABOUT ALISON
+
+    Learning on Alison
+    Our Story
+    Board of Directors
+    Alison Programmes
+    Our Course Creators
+    Open Positions
+    Press Room
+    Blog
+    Our Team & Culture
+    Our Unique HQ
+
+QUALITY FREE LEARNING
+
+    All Certificates
+    All Diplomas
+    All Free Courses
+    Hubs
+    Accreditation
+    Graduate Outcomes
+    Alison Testimonials
+    Premium Learning
+    Shop
+    Graduate Profiles
+    Purchase a Gift Card
+
+DISCOVER MORE
+
+    Download App
+    Access Free LMS
+    Career Ready Plan
+    Discover Careers
+    Alison Profile
+    Build Your Resumé
+    Aptitude Test
+    Verbal Reasoning Test
+    Numerical Reasoning Test
+    Abstract Reasoning Test
+    Free Personality Test
+    Free Well-being Check up
+    Integrate Alison’s API
+
+EARN ON ALISON
+
+    Create Courses on Alison
+    Affiliate Programme
+    Refer a Friend
+
+EVENTS
+
+    E-learning Africa
+    Upcoming Webinars
+
+    FAQs
+    Customer Support
+
+Download on the App StoreDownload on Google Play
+
+    © Alison 2025
+    Privacy
+    Terms
+    Cookie Policy
+    Sitemap
+
+course image
+
+Electrical Engineering in Theory
+
+Completed on: 7 April 2025
+course image
+
+Electrical Engineering - Electrical Transformer Components
+
+Completed on: 7 April 2025
+
+
+On Tue, Apr 8, 2025 at 10:12 AM tshingombe fiston <tshingombefiston@gmail.com> wrote:
+
+        me
+        Teaching & Academics
+        STEM
+        Electrical Engineering in Theory
+
+    Electrical Engineering in Theory
+    This free online course examines the basics of electricity, transformers, electrical machines and digital electronics.
+    The electrical theory entails understanding electric charges, circuit components and network theorems, which are the underlying principles of electrical engineering. This free online course will explore the rudiments of electrical engineering and electrical applications. We will discuss the principles of operation of transformers and electrical machines. We will also review logic gates and logic systems in digital electronics.
+    COURSE PUBLISHER Training Facility UKTrainers in personal development.
+    Claim Your certificate
+    Revisit Course
+    Rate This Course & Get Better Recommendations!
+    Loved
+    This!
+    Liked
+    This!
+    Not Interested
+    We are glad you Loved this course
+    Write your review here…
+    What You Will Learn In This Free Course
+
+        Recall the fundamentals of electric...
+        Explain DC networks, network theore...
+        Analyze single-phase AC circuits fo...
+        Explain the basic principles of the...
+
+    View All Learning Outcomes
+    Course Modules
+    Course Description
+    Alison Certificates
+    Module
+    Electricity and Electrical Applications
+    In this module, we dissect basic electricity, including electrical parameters and circuits. Learn how to analyse DC networks and network theorems, as well as how to solve network p... Read More
+    Revisit Course
+    Learning Outcomes
+    0 1
+    Basics of Eletricity and Network Theorems
+    0 21
+    Single Phase AC Circuits
+    0 15
+    Electrical Machines
+    0 16
+    Semiconductors and Digital Electronics
+    0 21
+    Fundamentals of Communication Engineering
+    0 11
+    Lesson Summary
+    0 4
+    Module
+    Course assessment
+    Revisit Course
+    Knowledge & Skills You Will Learn
+
+        Science
+        Engineering
+        Electronics
+        Electrical Engineering
+        STEM
+
+    No internet? No problem! Download any course on the Alison App and learn on the go. 📲
+    Get App
+    Explore Careers Related To This Course
+    Complete This CPD Accredited Course & Get Your certificate!
+
+        Certify Your Skills
+        A CPD accredited Alison Diploma/Certificate certifies the skills you’ve learned
+        Stand Out From The Crowd
+        Add your Alison Certification to your resumé and stay ahead of the competition
+        Advance in Your Career
+        Share your Alison Certification with potential employers to show off your skills and capabilities 
+
+    Claim Your certificate
+
+    The advent of electricity in homes, offices and industries marks the beginning of the modern age of technological development. Electricity has become such an essential part of our contemporary lives that we cannot imagine a world without it. It has been described as one of the "good fortunes that science has given to man," and the development of any country is measured by the rate of its electrical energy consumption. But electrical energy is not visible. As such, electrical engineers must study models from physics and mathematics to help them understand the mechanics and applications of electricity.
+
+    This course highlights the fundamental ideologies of the core elements of electrical engineering, including the theories and principles of energy conversion, transmission and utilisation. We study atomic theory, electromotive force, conductance and conductivity, Ohm's law and more. Moreover, we dissect work, energy and power before treating DC networks and network theorems. We investigate the three classifications of DC circuits and also show you how to read and connect circuit diagrams in experimental or real-world scenarios.
+
+    Finally, we explain the mathematical method for nodal analysis and the system for calculating the current flowing through a planar circuit (i.e., mesh analysis). Then, you will learn about the superposition, Thevenin's and Norton's theorems of linear and terminal networks. We will delve into single-phase AC circuits and electrical machines to study the characteristics and applications of DC generators, motors and transformers. Enrol today and start learnin
+
+        Course Reviews
+        Explore Careers
+        About Publisher
+
+    Electrical Engineering - Electrical Transformer Components
+    Beginner Level
+    Electrical Engineering - Electrical Transformer Components
+    44,611Learners already enrolled
+    198
+    86
+    Not Interested
+
+        1.5-3 Avg Hours
+        CPD Accredited
+
+    Claim Your certificate
+
+        Home
+        Engineering & Construction
+        STEM
+        Electrical Engineering - Electrical Transform...
+
+    Electrical Engineering - Electrical Transformer Components
+    Learn about electrical transformer construction and components with this free online Electrical Engineering course!
+    This free online Electrical Engineering course will teach you about electrical transformers, why we use them, and the features and functionality of their main components. Electrical transformers are an essential component in any electrical distribution system and are vital for proper energy transmission through an electrical grid. This free course uses detailed 3D models to teach you about an electrical transformers functions and components.
+    COURSE PUBLISHER saVReeIndustry experts in engineering
+    Claim Your certificate
+    Revisit Course
+    Rate This Course & Get Better Recommendations!
+    Loved
+    This!
+    Liked
+    This!
+    Not Interested
+    What You Will Learn In This Free Course
+
+        Identify all of an electrical trans...
+        Explain how a Buchholz relay works...
+        Describe how oil level measurement ...
+        Describe how transformer temperatur...
+
+    View All Learning Outcomes
+    Course Modules
+    Course Description
+    Alison Certificates
+    Module
+    Electrical Transformer Course
+    Prepare to learn a lot about transformer construction, components and maintenance!
+    Revisit Course
+    Introduction
+    2 1
+    Electrical Transformer Construction
+    2 6
+    Electrical Transformer Components
+    4 9
+    Tap Changers
+    2 7
+    Electrical Transformer Maintenance
+    2 5
+    Final Thoughts
+    1 0
+    Module
+    Course assessment
+    Revisit Course
+    Knowledge & Skills You Will Learn
+
+    Electrical transformers are a common site in any electrical distribution system. In order to understand how power is transmitted through an electrical grid, you will need to learn more about transformers. This free online course introduces you to all of an electrical transformer’s main components (core, windings etc.). The course shows you how a Buchholz relay works. You will learn about oil level measurements and how transformer temperature measurement works. The course then describes how silica gel breathers and tap changers work (on and off load).
+
+    This course will give you all the information you need to know about electrical transformers and can also be used later as a refresher course. Its an ideal course for anyone working/training in an electrical engineering or power engineering industry. Interactive 3D models are used extensively to show you exactly how each of the transformer parts work. The course is packed with 2D images, 2D animations and 3D animations. Written content has been read aloud so that you can 'learn on the go' without needing to watch the screen constantly. So, why wait? Start the course today and gain valuable knowledge on how electrical transformer components work!
+    Claim Your certificate
+    Knowledge & Skills You Will Learn
+
+        Engineering
+        Electrical Engineering
+        STEM
+        Rate This Course & Get Better Recommendations!
+        Loved
+        This!
+        Liked
+        This!
+        Not Interested
+        What You Will Learn In This Free Course
+            Categorize electrical measuring ins...
+            Explain how to repair such instrume...
+            Recognize the measurement of electr...
+            Explain the uses of shunts and seri...
+        View All Learning Outcomes
+        Course Modules
+        Course Description
+        Alison Certificates
+        Module
+        Primer on Electrical Transducers
+        Revisit Course
+        Module
+        Introduction to Electronic Sensors
+        Revisit Course
+        Module
+        Course assessment
+        Revisit Course
+        Knowledge & Skills You Will Learn
+            Engineering
+            Physics
+            Electronics
+            Electrical Engineering
+            Instrumentation
+            Electrician Apprenticeships
+
+            This electrical engineering course explains how to use various electrical measuring instruments. We begin by examining transducers, differential transformers and load cells in detail and discuss their types, operating principles and applications. We also explain how to measure vibration, rotation, acceleration, torque, force and humidity.
+
+            The rest of the course provides a well-rounded understanding of electrical sensors. We begin by exploring the key properties of sensors (including range, accuracy, repeatability and resolution). We then move on to other important sensor types before taking a deep dive into optical fiber technology. We focus on pressure sensors before finally teaching you how to use specialized sensors used for niche applications.
+
+            This electrical course provides you with a comprehensive understanding of electrical measuring instrumentation, adding a valuable skill to your portfolio that you can use as an electrician or electrical engineer. This course also suits anyone who is interested in learning about electricity and the profound role it plays in our lives. Sign up to learn about electrical measuring instruments to take your practical electrical skills to a new level.
+            Claim Your certificate
+
+
+
+    On Tue, Apr 8, 2025 at 10:05 AM tshingombe fiston <tshingombefiston@gmail.com> wrote:
+
+        Free Online Courses, Classes and Tutorials
+        Congratulations on becoming a graduate!
+
+        It's time to secure your certificate and let the world know about your achievement.
+        Highlight your skills to potential employers
+        Share your abilities on professional social media
+        Show your current employer your initiative and drive to learn
+        Certification
+        Shipping
+        Payment
+        Choose the type of Certificate you want for
+        Electrical Engineering in Theory
+        Digital Certificate
+        Digital Certificate
+        ZAR310.00
+        Certificate
+        Digital + Print
+        ZAR553.00
+        Next
+        Apply voucher
+        View/Edit Order Details
+        Order Total: ZAR553.00
+
+
+        Free Online Courses, Classes and Tutorials
+        Congratulations on becoming a graduate!
+
+        It's time to secure your certificate and let the world know about your achievement.
+        Highlight your skills to potential employers
+        Share your abilities on professional social media
+        Show your current employer your initiative and drive to learn
+        Certification
+        Shipping
+        Payment
+        Choose the type of Certificate you want for
+        Electrical Engineering - Electrical Transformer Components
+        Digital Certificate
+        Digital Certificate
+        ZAR310.00
+        Certificate
+        Digital + Print
+        ZAR553.00
+        Next
+        Apply voucher
+        View/Edit Order Details
+        Order Total: ZAR553.00
+
+
+        Free Online Courses, Classes and Tutorials
+        Congratulations on becoming a graduate!
+
+        It's time to secure your certificate and let the world know about your achievement.
+        Highlight your skills to potential employers
+        Share your abilities on professional social media
+        Show your current employer your initiative and drive to learn
+        clockOffer Expires in
+        12
+        HOURS
+        54
+        MINS
+        45
+        SECS
+        Claim Now & Get 20% Off
+        Your Next Certificate!
+        Claim your certificate now and we will email you a
+        voucher for 20% off your next certificate
+        penEdit Name on Certificate
+        discount_img
+
+
+        Free Online Courses, Classes and Tutorials
+        Congratulations on becoming a graduate!
+
+        It's time to secure your certificate and let the world know about your achievement.
+        Highlight your skills to potential employers
+        Share your abilities on professional social media
+        Show your current employer your initiative and drive to learn
+        Certification
+        Shipping
+        Payment
+        Choose the type of Certificate you want for
+        Electrical Measuring Instrumentation
+        Digital Certificate
+        Digital Certificate
+        ZAR310.00
+        Certificate
+        Digital + Print
+        ZAR553.00
+        Next
+        Apply voucher
+
+
+            Course Details
+            Alison Certificates
+            Course Reviews
+            Explore Careers
+            About Publisher
+
+        Beginner Level
+        Trigonometry in Electrical Engineering
+        3,993Learners already enrolled
+        10
+        8
+        Not Interested
+
+            5-6 Avg Hours
+            CPD Accredited
+
+        Continue Learning
+
+            Home
+            Engineering & Construction
+            STEM
+            Trigonometry in Electrical Engineering
+
+        Trigonometry in Electrical Engineering
+        Learn the basic concepts of trigonometry, its various principles and their application with this free online course.
+        If you have always wondered what the uses of trigonometry in our daily lives are, then this free online applied mathematics course will help you gain a deeper understanding of trigonometry and its various applications in the field of electrical engineering. You will learn about the various theorems of triangles as well as how to reduce complex trigonometric functions into simple ratios using trigonometric identities and formulas.
+        COURSE PUBLISHER Graham Van BruntElectrical engineering specialist
+        Continue Learning
+        What You Will Learn In This Free Course
+
+            Define trigonometry...
+            Recall the Pythagorean theorem...
+            Identify the various types of trian...
+            State the triangle proportionality ...
+
+        View All Learning Outcomes
+        Course Modules
+        Course Description
+        Alison Certificates
+        Module
+        Triangle Theorems and Trig Identities
+        In this module, you will be introduced to trigonometry and basic triangle theorems. You will learn about trigonometric functions, trigonometric identities and how to use them to so... Read More
+        Continue Learning
+        Learning Outcomes
+        0 1
+        Introduction to Triangles
+        4 2
+        Triangle Theorems and Trig Function
+        5 2
+        The Unit Circle and Unique Triangles
+        5 2
+        Trig Identities - Part 1
+        6 2
+        Trig Identities - Part 2
+        6 2
+        Lesson Summary
+        0 4
+        Module
+        Course assessment
+        Continue Learning
+
+        rigonometry is a very important tool for engineers and not just a subject to be studied in a classroom with no real-world practical applications. Trigonometry is the study of triangles and the principles are fundamental in electrical engineering because it is used to create circuits and describe the sinusoidal movement and characteristics of current and voltages in circuits. This electrical engineering course begins by introducing you to triangles and their theorems. You will learn about different types of triangles, intersecting lines and parallel lines. Thereafter, you will discover how to differentiate between congruent and similar triangles as well as supplementary and complementary angles. Moving on from there, you will be taught how to prove the Pythagorean theorem and how to use it to find the missing sides of a triangle. This online electrical course explores the unique angles and their expression as both a function and simple ratios as well as trigonometric functions such as sine, cosine, and tangent.
+
+        Electrical parameters and values are better understood using the concept of the unit circle, angles, sine, cosine and tangent values and you will be taught how to express the sine, cosine and tangents of special angles in simple ratios. Through the concept of the unit circle, you will then gain an understanding of why the trigonometric functions have a negative sign for some angles. Since there are many special angles, remembering them can be a great challenge. Have you ever wondered if there is a simple way to easily remember the values of these special angles? Well yes, there is! This certificate in electrical engineering provides you with a trigonometric table that would help you easily remember the values of special angles and trigonometric functions without having to use a calculator. The laws of sine and cosine will also be taught in order to calculate the missing sides or unknown sides of a triangle as well as missing angles.
+
+        As an electrical engineer, you are at one point in your career going to run into proofs of trigonometric equations. This electrical engineering online course is going to teach you how to prove basic trigonometric identities such as the sum formula, difference formula, product to sum and sum to product formulas. You will also learn about the reciprocal identities, quotient identities, negative angle identities and Pythagorean identities. The content also covers how to prove the double-angle and half-angle formulas and how to apply them to solve trigonometric problems and then concluding with how to use trigonometric tables to find the sine, cosine and tangent of angles between 0 and 90 degrees. Basic knowledge of intermediate mathematics such as equations and binomials is required to gain the most value out of this interesting course. You should enrol for this course if you are an electrical engineer, technologist or student of engineering and technology because the fundamental knowledge of trigonometry is widely applied in these and related fields and can open a new set of potential job opportunities.
+
+
+        On Mon, Apr 7, 2025 at 10:57 PM Alison Support Team <noreply@us-teaching.alison.com> wrote:
+
+            1491
+            You can make your Bank Transfer through your local bank in three steps. You must complete ALL three steps.
+
+            Step 1
+
+            Start with Payment Reference
+
+            Go to your bank and set up a Bank Transfer that includes this payment reference number
+
+            67f43c5243302--37876299
+
+            If you do not include this number in your Bank Transfer, we cannot complete your order!
+
+            Step 2
+
+            Complete Details
+
+            Complete your transfer by telling your bank to transfer $16.00 into this bank account
+
+            Account name: 	Capernaum Limited
+            Bank name: 	AIB
+            Bank address: 	50 Main St, Loughrea, Co. Galway, Ireland
+            Account number: 	25679190
+            Sort code: 	930067
+            Swift code: 	AIBKIE2D
+            Iban number: 	IE19AIBK93006725679190
+            Company: 	Alison
+
+            Step 3
+
+            Email Us
+
+            After you have completed the Bank Transfer, come back to this email and press the Transfer Complete button below.
+
+            Transfer Complete
+
+								    
                                                                     Certificate
                                                                     Digital + Print
                                                                     ZAR553.00
@@ -12082,5 +12731,6 @@ USA
 
 POWERED BY...
 	
+
 
 
